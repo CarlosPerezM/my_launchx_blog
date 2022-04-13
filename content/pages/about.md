@@ -9,13 +9,9 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+> Mi nombre es Carlos Alberto (ya se muy telenovelero) pero me gusta mi nombre, informático 
+> siempre he tenido el gusto de pelearme con las máquinas
+> trato de aprender algo diario y compartir alguna broma con los que me rodean. 
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
+**No es toda mi historia auuun hay más (raúl velazco no todos entenderan  jeje)
 
