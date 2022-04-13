@@ -1,7 +1,7 @@
 ---
 title: "Peripecias Iniciales"
-date: 2022-03-01
-description: 'Descripción de tu blog post'
+date: 2022-04-13
+description: 'No mucho por describir del titulo jejej'
 ---
 
 Demasiada información y mucho requisitos de entrada parecia muy sencillo pero nada de eso, he tenido windows 7
